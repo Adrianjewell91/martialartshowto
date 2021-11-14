@@ -52,7 +52,11 @@ Therefore, the movements themselves are of secondary importance to the understan
 	Exercise: An attacker attempts to tackle you, go into the attacker with a horse stance, and settle the body by spreading the knees slightly in the outward directions. 
 
 	Exercises: Stance Training. Horse stance exercises: push against each other while in the horse stance. The force should go down into the legs, and if a person suddenly releases their hands, the other person should not fall over. 
+	
+	3c. Counter balance applies also to feet as much as it applies to the hands. In kicking and Punching, these movements have as much of a force pushing into the ground as there is a force from the fist. So not only is there a counter balance in rotational force, but there is counter balance in straight forward force, and actually this counterbalance with the legs is more important.
 
+	Exercises: In moving from a horse to bow-arrow, kicking and punching, attend to the initating movement, that is: the movement from the feet as the origination of the movement. Have a partner measure the force, and it will be better. This exercise may feel unusual because the movement will feel effortless, especially if one is accustomed to punching by tensing one's upper body muscles and not focusing on the lower body. This is an example where the body has become so used to a movement that correcting it is hard because of the ingrained physical habits overcome the feeling of ease. It is also exacerbated by not believing that movement could feel so natural.   
+	
 4. Use rotation. Do it only at the end of movements to gain an extra force on the opponent.
 
 	Exercise: 10 Hands 
@@ -137,7 +141,6 @@ Record the forms
 
 Talk more about connection and expansion:
 
-In doing movements, there is some feeling if the ground moving the body rather than the body moving the body. This is the correct motion.
 
 
 
